@@ -1,0 +1,2 @@
+# Stamina
+Stamina GIFs
